@@ -1,0 +1,1 @@
+Paramertet.jaa
